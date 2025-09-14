@@ -11,6 +11,8 @@ We meet at the [Manchester Museum](https://www.museum.manchester.ac.uk/visit-us/
 
 # Special Events
 
+There are no events currently planned beyond our monthly meetings, please keep an eye on this space for future announcements
+
 # Library
 
 We maintain a [small library of books](https://docs.google.com/spreadsheets/d/1rOGQAZOlpW4S93UzdOChc3Wi9PWm2DZmBpo5MwtMado/) around aromanticism and asexuality that are available for our members to borrow
