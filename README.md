@@ -10,11 +10,6 @@ We meet on the 3rd Wednesday of the month from 6:00pm to 8:30pm
 We meet at the [Manchester Museum](https://www.museum.manchester.ac.uk/visit-us/access/) on the Top Floor. The welcome desk will be able to direct you if you can't find us.
 
 # Special Events
-## Manchester Pride
-
-Pluto will be marching in Manchester Pride Parade 2025! If you would like to join us, please fill out the form [here](https://docs.google.com/forms/d/e/1FAIpQLSfohcdhIUGqJmLUtXJmeVkWL8mKZhMyZzyuASmAjrxItKLUNw/viewform?usp=preview)
-
-Following the parade we will try to find a quieter space to collect at and wind down, more information on that to follow
 
 # Library
 
